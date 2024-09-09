@@ -1,3 +1,3 @@
 # ProgramacaoInternet
 
-# bem vindo
+bye bye brasil
